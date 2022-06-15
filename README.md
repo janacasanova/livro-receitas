@@ -2,3 +2,6 @@
 
 Olá! BEM-VINDO ao meu livro de receitas :call_me_hand:
 
+Panqueca
+
+Pave 
